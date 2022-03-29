@@ -19,4 +19,4 @@ Dogey and I are going to be working on lots of videos and hope to upload a big v
 
 Chunger Games
 
-So recently you might have been hearing a lot about this thing called the Chunger Games, and this is going to be something based very closely off of The Hunger Games and for those of you who have been living under a rock 
+So recently you might have been hearing a lot about this thing called the Chunger Games, and this is going to be something based very closely off of The Hunger Games and for those of you who have been living under a rock for the past 10 years The Hunger Games is a legendary series by Suzanne Collins, we decided to make a spinoff of this, but if you want the full origin story then you will have to wait, for this might be a video on the channel. 
